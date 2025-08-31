@@ -11,3 +11,4 @@
 ☆ fyi : im kind of aroace but straight, because i want to identify as a straight slightly being aroace. i kin a guy named cogsworth! not the clock, lols
 
 ♪ : thx for reading! ☆*:.｡. o(≧▽≦)o .｡.:*☆
+![banner](https://i.imgur.com/muoqlNu.png)
